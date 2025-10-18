@@ -1,1 +1,1 @@
-# andy-goh-qf620-pair-trading
+# andy-goh-qf620-LIBERATION_DAY
